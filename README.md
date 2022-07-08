@@ -1,3 +1,0 @@
-Experienced and Agile Leader and Systems Engineering Manager with Years of Intensive Expertise in Process and Manufacturing Automation, Distributed Control System, Manufacturing Execution System and High Level Software Engineering. Vast experience and expertise in GAMP and International standards, Validation and Qualification. Industry Domain Knowledge on Continuous, Discrete, Highly and Heavy Regulated Industries.
-
-Currently holds the position of Engineering and COMOS Lead, Line and Resource Manager for Siemens Digital Industries. Core functions are Business and People Management, Team Development, Leadership, Resource and Stakeholder Management, Engineering Management and Leading Processes.
